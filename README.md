@@ -20,7 +20,7 @@ For the purposes of this Privacy Policy:
     Company.
 
   * Company (referred to as either "the Company", "We", "Us" or "Our" in this
-    Agreement) refers to رياض المجد.
+    Agreement) refers to  communications_app
 
   * Country refers to: Israel
 
